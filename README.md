@@ -1,2 +1,0 @@
-# mathletics-hack-moded
-idk
